@@ -63,7 +63,7 @@ CatDex non è destinata specificamente a bambini di età inferiore a 13 anni.
 
 Per richieste relative alla privacy o all’assistenza:
 
-Email: INSERISCI_LA_TUA_EMAIL
+Email: giuseppedeluca.1998@gmail.com
 
 ## Modifiche
 
